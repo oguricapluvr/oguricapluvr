@@ -1,16 +1,35 @@
-## Hi there 👋
 
-<!--
-**oguricapluvr/oguricapluvr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+                    <img width="1080" height="608" alt="image" src="https://github.com/user-attachments/assets/27714055-0703-4a14-9498-d8fdfe3fb32a" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+                            
+
+
+                                         <img width="30%" height="300" alt="image" src="https://github.com/user-attachments/assets/08e6263b-ba1b-497f-8907-24d09617e675"/> 
+
+
+
+
+
+
+
+
+
+
+
+                                                                                                　     ⠀⠀ ⠀⠀⠀⠀⠀⠀01.
+⠀⠀  ⠀⠀  ⠀⠀✿,⠀    cher   ⠀⠀( ⠀18⠀ )⠀  ⠀ he/him
+
+⠀⠀  ⠀⠀  ⠀⠀minors dni.ㅤㅤself───indulgentㅤㅤ,ㅤㅤ
+
+         
+                                                                                                      
+         
+         
+         
+         
+         ⠀⠀ ⠀⠀
